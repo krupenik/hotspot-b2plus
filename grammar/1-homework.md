@@ -1,8 +1,8 @@
 # Ex. 1
 
-1. Paul: I have played football since I was five years old.
-   Tom: Did you play since you've come to England?
-   Paul: Oh yes. I've played quite a lot. I joined a club the day after I've arrived.
+1. Paul: I've been playing football since I was five years old.
+   Tom: Have you played since you came to England?
+   Paul: Oh yes. I've played quite a lot. I joined a club the day after I arrived.
 
 2. Tom: Did you play any matches?
    Paul: We've played about ten. We have two more to play. We've been having a very good season.
@@ -16,7 +16,7 @@
 
 5. Ann: I skied when I was at the university, but I broke a leg five years ago and since then I didn't do any.
 
-6. When I first came to this house, it was a very quiet area. But since then a new housing estate have been built
+6. When I first came to this house, it was a very quiet area. But since then a new housing estate was built
    and it has become very noisy.
 
 7. My son haven't started work yet. He's still at the High School.
@@ -103,7 +103,8 @@
 6. Tom (looking up absent-mindedly as Mary comes in): Have you been sunbathing?
    Mary (crossly): Don't be ridiculous! It's been raining all day!
 
-7. A pair of robins have built a nest in the porch since last week. I've been watching them from my window since they began.
+7. A pair of robins have been building a nest in the porch since last week.
+   I've been watching them from my window since they began.
 
 8. The police haven't found the murderer yet, but the dead man's brother has been in the station all day.
    The police say that he's been helping them with their enquiries.
