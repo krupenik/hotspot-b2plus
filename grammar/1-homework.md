@@ -24,7 +24,7 @@
    ~ He has been at the High School for six years; before that he has spent five years at the Primary School
      in Windmill Street.
 
-8. I just heard that Peter is in Australia.
+8. I've just heard that Peter is in Australia.
    ~ Oh, you didn't know? He flew out at the beginning of the month.
    ~ Have you heard from him? Does he like the life?
    ~ Yes, I got a letter last week. He told me about his job. But he didn't say whether he liked the life or not.
