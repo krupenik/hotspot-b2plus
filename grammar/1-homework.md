@@ -10,11 +10,11 @@
 
 3. Tom: I played football when I was at school but when I left school I dropped it and took up golf.
 
-4. Ann: Did you have a good time in Switzerland? How long you've been there?
+4. Ann: Did you have a good time in Switzerland? How long have you been there?
    Jack: I've been there for a month. I only just got back. Yes, I have enjoyed it thoroughly. I skied all day
    and danced all night.
 
-5. Ann: I skied when I was at the university, but I broke a leg five years ago and since then I didn't do any.
+5. Ann: I skied when I was at the university, but I broke a leg five years ago and since then I haven't done any.
 
 6. When I first came to this house, it was a very quiet area. But since then a new housing estate was built
    and it has become very noisy.
@@ -149,11 +149,11 @@
 2. I have no idea why she has been looking for patterns in my behavior.
 3. I've been itching to punish someone for quite a while.
 4. He has been court-martialed, sentenced to death and executed at the dawn.
-5. We've been working since morning. Should we start wrapping it up?
+5. We've been working since morning. Isn't it time to wrap up?
 6. You've become so prejudiced!
    ~ I've been biased all my life.
-7. FBI started a couple of thorough investigations after certain articles have appeared in the american media.
-8. I endeavor to be impartial and just notwithstanding the time and place
+7. FBI has started a couple of thorough investigations after certain articles appeared in the american media.
+8. I endeavor to be impartial and just regardless of the time and place.
 9. We've never heard him swearing despite his everchanging mood.
 10. I said this in the heat of the moment. I beg your pardon.
 11. Jane has never enjoyed looking back on her youth.
@@ -166,8 +166,8 @@
     ~ Not yet. He's been in Spain for a week already.
 17. Looking forward to the USA trip!
     ~ Have you been there already?
-18. Look out! Watch your step! In the last three week three pedestrians were run over right here.
+18. Look out! Watch your step! In the last three weeks three pedestrians were run over right here.
 19. Keep on experimenting!
     ~ I'm kept back by financial deficiencies.
-20. Since when you're into crossword puzzles?
+20. Since when have you been into crossword puzzles?
 
