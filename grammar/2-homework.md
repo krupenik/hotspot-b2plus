@@ -21,17 +21,17 @@ but I knew that he hadn't read it because the 50 dollar bill I had left inside w
 
 10. Then he remembered something else; his passport and tickets were in his overcoat pocket as well.
 
-11. I arrived in England in the middle of July. I had been told that England was shrouded in fog all year round,
+11. I arrived in England in the middle of July. I was told that England was shrouded in fog all year round,
 so I was quite surprised to find that it was merely raining.
 
 12. I asked another passenger, an Englishman, about the fog and he said that there hadn't been any since the previous February.
 
-13. If I wanted fog, he said, I'd come at quite the wrong time.
+13. If I wanted fog, he said, I had come at quite the wrong time.
 
 14. However, he told me that I could buy tinned fog at a shop in Shaftesbury Avenue.
 
 15. He admitted that he had never bought fog there himself but assured me
-that they sold good quality fog and that it wasn't expensive. I suppose he was joking.
+that they were selling good quality fog and that it wasn't expensive. I suppose he was joking.
 
 16. When the old lady returned to her flat she saw at once that burglars had broken in during her absence,
 because the front door was open and everything in the flat was upside down.
@@ -41,7 +41,7 @@ because a cigarette was still burning on an ornamental table.
 
 18. Probably they heard the lift coming up and ran down the fire escape.
 
-19. They had helped themselves to her whisky too but there was a little left, so she poured herself out a drink.
+19. They helped themselves to her whisky too but there was a little left, so she poured herself out a drink.
 
 20. She wondered if they had found her jewellery and rather hoped that they had.
 
