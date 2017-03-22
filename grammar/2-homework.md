@@ -64,7 +64,7 @@ because I had forgotten which book I had put it into.
 3. You can always look up her address in the directory if you have forgotten it.
 4. He looked me up and down before he condescended to answer my question.
 5. My windows look out on the garden.
-6. He asked me to look through the document and then sign it.
+6. He asked me to look into the document and then sign it.
 7. He looked through the book to see if he had read it before.
 8. He looks down on me because I spend my holidays in Brighton instead of going abroad.
 9. After our quarrel she looks through me whenever we meet.
@@ -76,13 +76,13 @@ because I had forgotten which book I had put it into.
 15. She talks so much that it is difficult to get away from her.
 16. They called each other every evening to keep up with the latest news.
 17. I told the children to keep away from stray dogs and cats. 
-18. They have always looked at me as a member of the family.
+18. They have always looked on me as a member of the family.
 19. Why don’t you look in on your way to work?
 20. How can some people get up as early as 5 AM is beyond me.
 21. Tom hasn't been working; he won't get through his examinations.
 22. Before putting any money into the business, we must look very carefully into the accounts.
 23. If he doesn't know the word, he can look it up in a dictionary.
-24. Keep out! Don’t come any closer!
+24. Keep ~out~ off! Don’t come any closer!
 25. Slow down! I can’t keep up with you!
 
 
@@ -96,20 +96,20 @@ because I had forgotten which book I had put it into.
 
 4. Their ostentatious benevolence has made me sick.
 
-5. He didn't come to my birthday party: he had been engrossed by his new project for the last three months.
+5. He didn't come to my birthday party: he was engrossed in his new project for the last three months.
 
 6. You were stumbling and stuttering all the time because you were afraid to do wrong. But some mistakes are inevitable.
 
-7. Why did you say you always had to dance to his tune?
+7. Why did you say you had always had to dance to his tune?
 
-8. When the politician was asked since when he considered by-elections vital, he told that he had always hold to that,
-but I remembered that he had stated we had been having too many elections in recent times just a week before that.
+8. When the politician was asked since when he had considered the by-election vital, he told that he had always held to that,
+but I remembered that just a week before that he had stated we had been having too many elections in recent times.
 
-9. We've been told that the new theater have been under construction for five years and during this time the city
-council have changed contractors a few times but haven't been able to find a company capable of speeding up the pace.
-We've asked how much money has already been spent, but to no avail.
+9. We were told that the new theater had been under construction for five years and during that time the city
+council had changed contractors a few times but hadn't been able to find a company capable of speeding up the pace.
+We asked how much money had already been spent, but to no avail.
 
-10. By 11pm almost all stores were already closed, shop assistants went home and buyers were sitting at the table and opening champaign.
+10. By 11pm almost all stores had already been closed, shop assistants had gone home and customers had been sitting at the table and opening champaign.
 
 ---
 
@@ -139,25 +139,25 @@ That guy might've been telling the truth.
 
 1. I must look into your proposal before making a decision.
 
-2. When I pointed out the joke was an offensive one, he looked up and down on me and didn't say a word.
+2. When I pointed out the joke was an offensive one, he looked me up and down and didn't say a word.
 
 3. Holmes told me the sentence ran "As you value your life or your reason | keep away from the moor".
 
 4. Since he made a promise to help me with the luggage he had to keep it up.
 
-5. ~ Did they get out after you showed up? ~ No, they got out way before that.
+5. ~ Did they get out after you had shown up? ~ No, they had got out way before that.
 
-6. The test was difficult and many before us were not up to it.
+6. The test was difficult and many before us had not been up to it.
 
-7. We often look down on those we should in fact respect.
+7. We often look down on those we should look up to.
 
-8. By the evening I looked through a number of essays on this matter but didn't find anything particularly interesting.
+8. By the evening I had looked through a number of essays on this matter but hadn't found anything interesting.
 
-9. By the time she married for the third time she got over her second husband's death.
+9. By the time she had married for the third time she got over her second husband's death.
 
-10. Before I moved in here I had been living in an apartment looking on a noisy avenue.
+10. Before I moved in here I had been living in an apartment overlooking a noisy avenue.
 
-11. Jack got out of the bed way before his wife got up.
+11. Jack had got up before his wife woke up.
 
 12. The elderly of our house were into gossipping near the porch.
 
