@@ -183,24 +183,24 @@ That guy might've been telling the truth.
 
 This time last year I was cycling in the rain along a country road in France with a friend of mine.
 
-We decided to go on a cycling holiday in Normandy.
+We had decided to go on a cycling holiday in Normandy.
 
-Neither of us had gone to France before, but we knew some French from our time at school and we managed to brush up on the basics.
+Neither of us had been to France before, but we knew some French from our time at school and we had managed to brush up on the basics.
 
-Now we were wondering if we made the right decision.
+Now we were wondering if we had made the right decision.
 
-We planned our route carefully in advance but we forgot one important thing, the weather.
+We had planned our route carefully in advance but we had forgotten one important thing, the weather.
 
 It had been raining solidly since our arrival and that night we ended up sleeping in the waiting room at a railway station.
 
-Then the next morning as we rode down a steep hill my bike skidded on the wet road and I fell off.
+Then the next morning as we were riding down a steep hill my bike skidded on the wet road and I fell off.
 
 I realized immediately that I had broken my arm and after a visit to the local hospital I caught the next train to Calais
 for the ferry home.
 
 Unfortunately my parents weren't expecting me home for a fortnight and had gone away on holiday.
 
-So I spent a miserable couple of weeks alone, reading _Teach Yourself French_
+So I spent a miserable couple of weeks alone, reading _Teach Yourself French_.
 
 ## B
 
