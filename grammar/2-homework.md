@@ -17,11 +17,11 @@ but I knew that he hadn't read it because the 50 dollar bill I had left inside w
 
 8. When he had searched all his pockets and found no key he remembered where it was.
 
-9. He left it in his overcoat pocket.
+9. He had left it in his overcoat pocket.
 
 10. Then he remembered something else; his passport and tickets were in his overcoat pocket as well.
 
-11. I arrived in England in the middle of July. I was told that England was shrouded in fog all year round,
+11. I arrived in England in the middle of July. I had been told that England was shrouded in fog all year round,
 so I was quite surprised to find that it was merely raining.
 
 12. I asked another passenger, an Englishman, about the fog and he said that there hadn't been any since the previous February.
@@ -39,20 +39,20 @@ because the front door was open and everything in the flat was upside down.
 17. The burglars themselves were no longer there, but they probably had only just left
 because a cigarette was still burning on an ornamental table.
 
-18. Probably they heard the lift coming up and ran down the fire escape.
+18. Probably they had heard the lift coming up and had run down the fire escape.
 
-19. They helped themselves to her whisky too but there was a little left, so she poured herself out a drink.
+19. They had helped themselves to her whisky too but there was a little left, so she poured herself out a drink.
 
 20. She wondered if they had found her jewellery and rather hoped that they had.
 
-21. The jewellery was given to her by her husband, who had died some years before.
+21. The jewellery had been given to her by her husband, who had died some years before.
 
 22. Since his death she hadn't had the heart to wear it, yet she didn't like to sell it.
 
 23. Now it seemed that fate had taken the matter out of her hands; and certainly the insurance money would come in handy.
 
-24. I had put the £5 note into one of my books; but the next day it took me ages to find it
-because I forgot which book I had put it into.
+24. I put the £5 note into one of my books; but the next day it took me ages to find it
+because I had forgotten which book I had put it into.
 
 25. A woman came in with a baby, who she said just had swallowed a safety pin.
 
