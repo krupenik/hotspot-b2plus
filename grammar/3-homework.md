@@ -44,7 +44,7 @@
 7. The gun went off by accident and wounded him in the leg.
 8. She went ahead with a beauty contest and got a prize.
 9. Those rust marks will come off if you rub them with lemon.
-10. If there isn't enough soup to go . . .,  just put some hot water in it.
+10. If there isn't enough soup to go with, just put some hot water in it.
 11. You can't go back on your promise now; we are depending on you.
 12. They have gone through all the calculations again, but they still can't find the mistake.
 13. Are you still looking for an English language teacher, or have you come down to a couple of candidates yet?
