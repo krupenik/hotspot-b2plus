@@ -1,6 +1,6 @@
 # Ex. 1
 
-1. He gave me back the book, thanked me for lending it to him and said that he had enjoyed it very much;
+1. He gave the book back to me, thanked me for lending it to him and said that he had enjoyed it very much;
 but I knew that he hadn't read it because the 50 dollar bill I had left inside was still there, on the same page!
 
 2. When he saw his wife off at the station, he returned home as he didn't have to be at the airport till 9.30.
@@ -109,7 +109,7 @@ but I remembered that just a week before that he had stated we had been having t
 council had changed contractors a few times but hadn't been able to find a company capable of speeding up the pace.
 We asked how much money had already been spent, but to no avail.
 
-10. By 11pm almost all stores had already been closed, shop assistants had gone home and customers had been sitting at the table and opening champaign.
+10. By 11pm almost all stores had already been closed, shop assistants had gone home and customers had been sitting at the table and opening champagne.
 
 ---
 
