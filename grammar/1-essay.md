@@ -37,10 +37,9 @@ Sustainability is an issue, but I'm going to argue that the advances in technolo
 Just remember: the planet isn't going anywhere, we are! I really hope people will learn to leave the nature alone until it's too late.
 
 ## Conclusion
-Well, the answer to the original question is a resounding YES!
+So has the world become a better place in 21st century? In my opinion, the answer to the research question is a resounding YES!
 
 References:
-
 [unesco]: http://www.unesco.org/education/GMR2006/full/chapt8_eng.pdf
 [poverty]: http://www.economist.com/news/leaders/21578665-nearly-1-billion-people-have-been-taken-out-extreme-poverty-20-years-world-should-aim
 [wars1]: https://www.pri.org/stories/2014-09-29/world-actually-becoming-more-peaceful-believe-it-or-not
